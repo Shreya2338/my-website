@@ -1,4 +1,5 @@
 # My Webstite  
+**this was a dare** what a stupid dare
 - it is fun 
 - it is simple 
 - it is cutesy comme moi! 
